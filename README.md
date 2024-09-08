@@ -3,7 +3,7 @@
 
 
 <h2>Description</h2>
-I understand it is unusual to show high-school group projects, but as this was only 12 months ago and ~90% of my work, I have included it. Monetary policy is something I am passionate about, and I regularly follow Jarome Powell's activities in the US, so doing this project was great fun for me. It was a shame we were capped at seven minutes; this presentation could have been an hour. 
+Monetary policy is something I am passionate about, and I regularly follow Jarome Powell's activities in the US, so doing this project was great fun for me. It was a shame we were capped at seven minutes; this presentation could have been an hour. 
 
 We placed second nationally, which is not normally recognised in this competition, but the judges made it known due to the fine margin.
 
